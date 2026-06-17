@@ -1,0 +1,48 @@
+{
+  "name": "graph-filter",
+  "version": "1.0.0",
+  "type": "module",
+  "private": true,
+  "description": "Local Quartz wrapper that filters the global graph by selected tags.",
+  "main": "./dist/index.js",
+  "exports": {
+    ".": {
+      "import": "./dist/index.js"
+    },
+    "./components": {
+      "import": "./dist/components/index.js"
+    },
+    "./package.json": "./package.json"
+  },
+  "scripts": {
+    "build": "tsup"
+  },
+  "dependencies": {
+    "@quartz-community/graph": "github:quartz-community/graph",
+    "preact": "^10.29.2"
+  },
+  "devDependencies": {
+    "@quartz-community/types": "github:quartz-community/types",
+    "@types/node": "^25.9.3",
+    "prettier": "^3.8.4",
+    "tsup": "^8.5.0",
+    "typescript": "^6.0.3"
+  },
+  "peerDependencies": {
+    "preact": "^10.29.2"
+  },
+  "quartz": {
+    "name": "graph-filter",
+    "displayName": "Graph Filter",
+    "category": "component",
+    "version": "1.0.0",
+    "quartzVersion": ">=5.0.0",
+    "components": {
+      "Graph": {
+        "displayName": "Graph",
+        "defaultPosition": "right",
+        "defaultPriority": 10
+      }
+    }
+  }
+}
