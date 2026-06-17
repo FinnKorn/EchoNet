@@ -1,0 +1,4 @@
+In jedem Krieg muss jemand das Kommando haben. Aktuellen Informationen zufolge hat der Anführer der Disianer, der als der Höchste bekannt ist, den als Auditor bekannten Disianer dazu bestimmt, das Letzte Projekt zu vollenden. Dateien und Feldberichte deuten darauf hin, dass der Auditor seit mindestens einem Jahrzehnt (möglicherweise länger) auf der materiellen Ebene ist und eine Schlüsselrolle bei der Bündnissuche zu Konzernen und Regierungen sowie bei der Erschaffung des Ernter-Netzwerks gespielt hat. Nach dem, was wir herausgefunden haben, war es der Auditor, der die aktuelle Verteidigungsstrategie und die Beschleunigung des Letzten Projekts initiiert hat. Das sind leider auch schon alle aktuellen Daten, die wir über den Auditor zusammentragen konnten.
+
+
+#TödlicheErnte 

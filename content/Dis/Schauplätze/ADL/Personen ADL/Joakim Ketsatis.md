@@ -1,0 +1,1 @@
+Ketsatis ist Leiter des Grenzschutzkommandos Nord mit Sitz in Hannover und ein enger Vertrauter von Karl-Helmut Wintropp, dem Inspekteur des BGS.

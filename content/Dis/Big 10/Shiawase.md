@@ -1,0 +1,9 @@
+Mit Ausnahme von Aztechnology hat Shiawase bisher die längste Beziehung zu Dis. Bekannte disianische Agenten und der Auditor selbst haben mehr als einmal den Hauptsitz von Shiawase besucht. Shiawases For schungs- und Entwicklungszentren waren außerdem maßgeblich an der Entwicklung der Biotechnologie beteiligt, die Gefangene von Dis am Leben hält, damit sie später geopfert werden können. CEO Tadashi Shiawase hatte kürzlich die disiani sche Bedrohung erkannt. Er rechnete jedoch die Zahlen durch und fand es in seinem und dem besten Interesse des Konzerns, nichts zu tun. Er wusste, dass, wenn sie die Disianer konfrontierten, ihre faustischen Diener verraten würden, was Shiawase für sie getan hatte. Der mögliche Schaden für ihn ist weit weniger besorgniser regend als der erhebliche Schaden für den Gewinn, das Vermächtnis und die globale Reputation von Shiawase. Also wird er warten, um zu sehen, wer der Sieger sein wird. Wenn es so aussieht, als ob eine Seite gewinnen könnte, wird er eine plausible Geschichte erfinden, um seine und die Untätigkeit des Konzerns zu vertuschen. Der Höchste Rat der Disianer entdeckte, dass Tadashi die Wahrheit über die [[Ernter]] und das [[Letztes Projekt]] erfahren hatte. Er erwartete, dass Tadashi Maßnahmen ergreifen würde, also beschloss er, zuerst zu handeln. Der Plan des Höchsten Rats bestand darin, Tadashi bei dem Treffen zu ermorden und ihn durch eine seiner neuen Chimärenformen zu ersetzen. Dieser Versuch scheiterte nicht nur, die neue Chimäre wurde auch gefangen genommen. Tadashi ist nun besorgt, dass andere Mitglieder der Familie ersetzt wurden. Die einzige Person innerhalb der Familie, der er diese Informationen mitgeteilt hat, ist seine Tochter, Kaiserin Hitomi (auch bekannt als Lady Death). Wir vermuten jedoch, dass Kaiserin Hitomi nicht gewillt ist, in dieser Angelegenheit so passiv zu sein wie ihr Vater.
+
+
+Referenzen:
+Fürchte das Dunkel 71
+
+
+
+#FürchtedasDunkel 

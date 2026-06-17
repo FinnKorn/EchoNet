@@ -1,0 +1,9 @@
+Neo-Police Deployment stellte heute in einer Pressekonferenz die Bilanz der Razzien der vergangenen Tage vor. Insgesamt kam es bei 28 konzertierten Durchsuchungen in insgesamt 74 Objekten zu 63 Festnahmen. Bedauerlicher weise stießen die Beamten bei einer Mehrzahl der Durchsuchungen auf brutalen, teilweise bewaffneten Widerstand, durch den 23 Beamte verletzt wurden. Glücklicherweise sind die Verletzungen aufgrund der modernen Schutzausstattung trotz der massiven Gewalteinwirkung bei keinem der Beamten lebensbedrohlich. Demgegenüber stehen unbestätigten Angaben nicht staatlicher Hilfsgruppen zufolge mehr als hundert Verletzte aufseiten der betroffenen Bevölkerung. Die Zahl der tödlich verletzten Metamenschen aus den beiden Sonderverwaltungszonen schwankt stark zwischen 76 und den von den Behörden vermeldeten 4 Toten. Hintergrund der groß angelegten und eilig ausgeführten Durchsuchungen und Festnahmen waren laut Neo-PD langwierige Ermittlungen zu staatsgefährdendem Verhalten und Terrorverdacht. Aufgrund der weltweiten erschütternden Ereignisse Anfang November mussten die gerichtlich bestätigten Durchsuchungsbeschlüsse nun früher und konzertiert vollzogen werden.
+Neo-PD verwahrte sich gegen die Kritik des überharten Vorgehens und verweist auf den massiven Widerstand und die hohe Zahl Verletzter in den eigenen Reihen. Martina Mittermeier, Pressesprecherin von Neo-PD München, sagte gegenüber den Vertretern der Medien: „Wir haben lange ermittelt und sind froh, diese vielfältigen Gefahren für die Münchner Bevölkerung nun endlich erfolgreich beseitigt zu haben. München ist und bleibt die sicherste Stadt Europas, dank des Einsatzes von Neo-Police Deployment!“
+
+
+
+Referenzen: 
+Fürchte das Dunkle 193
+
+#FürchtedasDunkel 

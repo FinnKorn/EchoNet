@@ -1,0 +1,9 @@
+Der Feind meiner Feinde Wenn wir nach der Motivation von SK suchen, lasst uns das Offensichtliche zuerst ansprechen. Lofwyr ist immer noch sauer darüber, den Platz an der Spitze des Konzernrankings an Mitsuhama verloren zu haben, und er ist immer auf der Suche nach Möglichkeiten, MCT zu schaden. MCT ist prodisianisch, was SK auf die AntiDisSeite bringen könnte. Aber das ist nicht alles.
+
+Es gibt, hier auf JackPoint und an anderen Stellen, viele Debatten darüber, was genau die Disianer wol len und wie weit sie gehen werden. Ich werde darauf nicht weiter eingehen, als zu sagen, dass die komplette Eliminierung unserer Manasphäre, was zum Verlust von nicht nur aller Magie auf der Erde, sondern von allem Leben führen könnte, als Ergebnis nicht ausgeschlossen werden kann. Was bedeutet, dass jede Art von Zusammenarbeit mit ihnen extrem gefährlich ist. Nun, geht die Hybris von Lofwyr so weit, dass er vielleicht denkt, er könnte einige Zeit mit Dis zusammenarbeiten und dann den Schaden, den sie anrichten, begrenzen, falls das nötig sein sollte? Klar, das ist möglich, sogar wahrscheinlich. Aber wie weit würde er sie gehen lassen, falls er sich entscheidet, einige Zeit mit ihnen zusammenzuarbeiten? Diese Frage hält mich nachts wach. 
+Das ist möglicherweise der echte Knackpunkt. Wenn Lofwyr von hier aus einen idealen Plan machen könnte, dann würde er vermutlich Dis für einige Zeit unter stützen, während er Druckmittel gegen sie sammelt und dann diese Druckmittel zum richtigen Zeitpunkt einsetzt, um die Disianer bei ihrem Plan zu stoppen. Das wäre perfekt und ist die Art, wie reiche Leute und Konzerne arbeiten.
+
+
+Fürchte das Dunkel 29
+
+#FürchtedasDunkel 

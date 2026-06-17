@@ -1,0 +1,10 @@
+Teil der letzten Offensive des [[Widerstand]] [[21. Juli 2083 Wiederstand zieht in die Schlacht]]
+
+Nach aktuellem Stand besteht diese Kreuzfahrt aus dem Free Marine Corps und seinen Angriffsschiffen (FMS Iwo Jima, New Orleans, Green Bay und der neuen Belleau Wood), seinen Fregatten (Independence, Coronado und Daniel J. Daley) und einer ganzen Reihe von *ähem* privaten Schiffen. Sie eskortieren mehrere Transportschiffe mit Mitgliedern von Tsunami, Combat Inc., unabhängigen Söldnern, allen Shadowrunnern, die verrückt genug sind, um mitzukommen, und einer Abordnung von Saeder-Krupp.
+Außerdem sind zwei Tage nach dem Auslaufen drei Langstrecken-VTOLs mit Roten Samurai auf der Iwo Jima gelandet. Die Überreste von Tai-sa Minorus persönlicher Einheit haben sich von Renraku getrennt und sind hier, um den Tod ihres Kommandanten zu rächen und ihre Ehre wiederherzustellen. Wie dem auch sei – je mehr, desto besser. Unsere Aufgabe ist es, Aztechnologys Anlage in der [[Antarktis]] einzunehmen, die, wie mir gesagt wurde, einen riesigen Locus beherbergt, in dem die Disianer das geerntete Mana bündeln und – in Ermangelung eines besseren Begriffs – raffinieren, bevor sie es an einen Ort in den UCAS und zurück zu ihrer Meta ebene schicken.
+
+Durch die Rebellion großer Teile von [[Aztechnology]] unter der Führung von [[Armando Salazar]] konnten die Streitkräfte bis zum Lokus vordringen und den Auditor ([[Der Auditor]]) vernichten. Dabei wurde die gewaltige Menge an angereichertem Mana freigesetzt, die von den Großdrachen (Aden, Celedyr, Ghost walker, Hestaby, Hualpa, Lofwyr, Lung, Rhonabwy, Ryumyo) mit einem Ritual unter der Leitung von [[Arleesh]] und unter Nutzung einer mysteriösen Schriftrolle in die Erde zurück-kanalysiert wurde ([[Sirrug]] verteidigte das Ritual gegen allerlei Angriffe).
+
+
+
+#TödlicheErnte 

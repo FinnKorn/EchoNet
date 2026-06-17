@@ -1,0 +1,6 @@
+Gerade als es nicht mehr schlimmer werden konnte, kehrte Sirrurg der Zerstörer zurück. Aber in einer der größten überraschenden Wendungen der Geschichte war er auf unserer Seite. Es gibt so viele Wesen, die der Metamenschheit zu Hilfe hätten kommen können. Ihn hätte ich nie erwartet. Wir leben wirklich in seltsamen Zeiten. Bevor jemand fragt: Es gibt keinerlei Daten darüber, wo er all die Jahre gewesen ist. Natürlich gibt es viele Theorien, aber keine davon ergibt einen Sinn. Was wir wissen, ist, dass Sirrurg vor der letzten Schlacht mit den [[Disianer]] mit einem Knall zurückkehrte und disianische Ziele angriff, von denen wir nicht ein mal wussten, dass es sie gab. Als Nächstes wurde er in der Antarktis gesichtet, wo er sich mit mehreren Kriegsformen der Disianer anlegte und den Kreis der anderen Großen Drachen schützte, während sie das Ritual durchführten, mit dem das gesammelte Mana wieder in die materielle Ebene zurückgeführt wurde ([[Kalter Zorn]]). 
+Nachdem das Ritual abgeschlossen und die Manasphäre (größtenteils?) wiederhergestellt war, verschwand Sirrurg wieder.
+
+
+
+#TödlicheErnte 

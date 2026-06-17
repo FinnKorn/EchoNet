@@ -1,0 +1,5 @@
+In jedem Krieg gibt es diejenigen, die kämpfen, und diejenigen, die die Kämpfenden unterstützen. Toshi Akimura, dem derzeitigen Vorsitzenden der Draco Foundation, fiel letztere Rolle zu. Als die Manastürme und andere Naturkatastrophen auftraten, brauchten die Leute einen Ort, an den sie gehen konnten. Und nicht nur die Vertriebe nen, sondern auch die Angehörigen der Kämpfenden brauchten Schutz. Auftritt Draco Foundation. Durch ihre humanitären Bemühungen konnte sie Zehntausende Personen aus Katastrophen- und Kriegsgebieten in (relativ) sichere Gebiete umsiedeln. An der Spitze dieser Bemühungen stand Akimura, ein ehemaliger Shadowrunner und ein früheres Mitglied von Dunkelzahns Beobachtern, der von den Schatten ins Licht wechselte. Während des gesamten Krieges wurde sein Gesicht in Trids, Screamsheets und der Matrix zum Synonym für die Draco Foundation und ermutigte die Leute, in dieser Zeit der Not zu helfen. Und überraschender weise gelang ihm etwas, das nur wenige für möglich gehalten hätten: Er brachte die Leute dazu, sich zu kümmern.
+
+
+
+#TödlicheErnte 

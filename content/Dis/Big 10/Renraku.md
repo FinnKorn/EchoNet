@@ -1,0 +1,13 @@
+Ich kann Renrakus Position zu Dis kurz und bündig so zusammenfassen: Sie. Sind. Sauer. Die genauen Gründe dafür sind vielfältig und in einigen Fällen sogar differenziert, aber darauf werde ich gleich noch eingehen. Aber unabhängig von den Gründen ist Renraku jetzt, da die Woche des Todes (größtenteils?) vorbei ist, voll im AntiDisModus und will nichts Geringeres, als jede Spur des disi anischen Einflusses zu zerstören, wo immer es ihn finden kann. Ich bin offen gesagt überrascht, dass es die Dinge (größtenteils) noch immer im Verborgenen hält. Zumindest im Moment. Und während andere Konzerne und Regierungen immer noch mit der Unterwanderung durch die Disianer zu kämpfen haben, hat Renraku damit keinerlei Probleme. Sobald der Vorstand von Renraku von den Disianern er fuhr, führte er seine eigenen internen Untersuchungen durch, die zu konzernweiten Säuberungen führten, auf die ein Diktator stolz gewesen wäre.
+
+
+
+
+**Der Zorn der Roten Samurai:**
+ Man kann nicht über Renraku sprechen, ohne die Roten Samurai zu erwähnen, die mittlerweile kei ner Vorstellung mehr bedürfen sollten. Wenn die Roten Samurai auftauchen, wissen wir sofort, was die Glocke geschlagen hat und dass wir höchst wahrscheinlich erledigt sind. Sie sind diejenigen, die Renraku schickt, wenn es ein Problem auf die brutalste und blutigste Art und Weise lösen oder eine ganz bestimmte Botschaft senden will. Es sollte niemanden überraschen, dass Renraku bereits damit begonnen hat, die Roten Samurai weltweit einzusetzen. Der Hauptgrund, warum wir bisher nicht viel darüber gehört haben, ist einfach: Sie haben keine Überlebenden zurückgelassen. Aber im Geiste der Zusammenarbeit hat Renraku freundlicherweise verraten, dass die Roten Samurai bereits mehrere disianische Ziele im gesamten Pazifikraum ausgeschaltet haben. Sie sind zwar nicht sehr entgegenkommend mit dem Wer, dem Wo und dem Was, aber egal. Eine schnelle Datensuche hat viele unerklärliche Todesfälle und Krater an Stellen ergeben, wo früher Gebäude standen. Bisher gab es nur wenige solcher Aktionen. Aber das wird sich wahrscheinlich bald ändern. Trotz ihrer Bemühungen sind Berichte aufgetaucht, dass sich eine große Anzahl Roter Samurai zu einem Spezialtraining an verschiedenen geheimen Orten in Okinawa versammelt hat. Es ist nicht bekannt, was sie vorhaben, aber die Roten Samurai versammeln sich nur dann in dieser Anzahl, wenn etwas Großes passieren wird.
+
+
+Referenzen: 
+Fürchte das Dunkel 63
+
+#FürchtedasDunkel 

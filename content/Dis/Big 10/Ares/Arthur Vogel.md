@@ -1,0 +1,1 @@
+Übergangspräsident von [[Ares]] nach Tod von [[Damien Knight]]
