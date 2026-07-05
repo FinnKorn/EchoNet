@@ -8,7 +8,3 @@ Vor dem Download Fürchte das Dunkel erfuhr ich, dass Rickmans Team einen große
 Referenzen:
 Fürchte das Dunkel 77
 Tödliche Ernte 58
-
-
-#FürchtedasDunkel 
-#TödlicheErnte 
